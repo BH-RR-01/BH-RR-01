@@ -27,7 +27,6 @@
 - all of this is by me btw... i know, no autographs please 😎
 - ![ZAMN- i mean uh  hey](https://github.com/user-attachments/assets/4b039687-e928-4d4b-a868-6bd51245d0c5)
 - ![WhatsApp Image 2025-05-25 at 06 39 04_d9a3b7f6](https://github.com/user-attachments/assets/38d2686a-52a1-4967-a673-697ca4dbfa39)
-- ![someone save bro from her hyper ass](https://github.com/user-attachments/assets/0fca6435-34f1-492a-b1c8-a452aeee6bb7)
 - ![trippin ballz man](https://github.com/user-attachments/assets/c97800ec-bc33-4f44-8769-970006bd24d5)
 - ![erikanos](https://github.com/user-attachments/assets/5e8c6286-a14d-4139-bd9a-d6bb80960476)
 - ![everybodys favourite butch bisexual](https://github.com/user-attachments/assets/66e5484d-e5f6-4aff-9883-bec24f8c662b)
