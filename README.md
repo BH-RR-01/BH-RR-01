@@ -25,6 +25,7 @@
 - /////////////////////////////////////////////////////////////////////////////////////////////////////////////////////
 - Ok well thats about it, have a free art gallery ig
 - all of this is by me btw... i know, no autographs please 😎
+- ![smash](https://github.com/user-attachments/assets/8707c142-62ac-45ae-a9af-91d5fb90359a)
 - ![ZAMN- i mean uh  hey](https://github.com/user-attachments/assets/4b039687-e928-4d4b-a868-6bd51245d0c5)
 - ![WhatsApp Image 2025-05-25 at 06 39 04_d9a3b7f6](https://github.com/user-attachments/assets/38d2686a-52a1-4967-a673-697ca4dbfa39)
 - ![trippin ballz man](https://github.com/user-attachments/assets/c97800ec-bc33-4f44-8769-970006bd24d5)
