@@ -3,13 +3,13 @@ https://www.patreon.com/c/bh_rr_01
 - 💬= I'd love a conversation! - 
 - 🟢=Talk to me if you'd like. - 
 - 🌙= W2I / AFK - 
-- ⛔= Strictly DNIUF. I'm most likely struggling. -
+- ⛔= Strictly DNIUF. I'm most likely struggling with something. -
 - /////////////////////////////////////////////////////////////////////////////////////////////////////////////////////
 - Feel free to C+H if AFK.
 - Slow replier.
 - I'm 15
 - I'm British
-- plspls idc if i have t3 supporter STOP ASKING ME TO JOIN UR PARTIES IF I DONT KNOW YOU UGHHH  
+- plspls idc if i have t4 supporter STOP ASKING ME TO JOIN UR PARTIES IF I DONT KNOW YOU UGHHH  
 - I dont rp. i find it hard to, plus, i'm very dry.
 - I am a selfshipper! [but like one of the mentally stable ones... i promise.]
 - ![hehehehe](https://github.com/user-attachments/assets/eac3b13a-e00c-4963-b04a-0f180118062c) he's literally so dense I love him I love to observe him hes so fuckin adorable
