@@ -10,7 +10,7 @@ https://www.patreon.com/c/bh_rr_01
 - I'm 15
 - I'm British
 - I dont rp. i find it hard to, plus, i'm very dry.
-- I am a yume / selfshipper! [but like one of the mentally stable ones... i promise.]
+- I am a riako!
 - ![hehehehe](https://github.com/user-attachments/assets/eac3b13a-e00c-4963-b04a-0f180118062c)
 
 - ~ he's literally so dense I love him I love to observe him hes so fuckin adorable ughfshfghfgfghdfghsfh my babyy oh muh guhhhh ~
@@ -24,11 +24,6 @@ https://www.patreon.com/c/bh_rr_01
 - INT IF:
 - Honestly just interact with me if u dont fall into the DNI category, I'd love to make some friends.
 - /////////////////////////////////////////////////////////////////////////////////////////////////////////////////////
-- Ok well thats about it, have a free art gallery ig
-- all of this is by me btw... i know, no autographs please
-- ![WhatsApp Image 2025-06-01 at 06 09 25_455e7136](https://github.com/user-attachments/assets/f7a8f2ff-1f54-4363-9ebb-f3c534d56363)
-- ![smash](https://github.com/user-attachments/assets/8707c142-62ac-45ae-a9af-91d5fb90359a)
-- ![ZAMN- i mean uh  hey](https://github.com/user-attachments/assets/4b039687-e928-4d4b-a868-6bd51245d0c5)
 - ![WhatsApp Image 2025-05-25 at 06 39 04_d9a3b7f6](https://github.com/user-attachments/assets/38d2686a-52a1-4967-a673-697ca4dbfa39)
 - ![trippin ballz man](https://github.com/user-attachments/assets/c97800ec-bc33-4f44-8769-970006bd24d5)
 - ![everybodys favourite butch bisexual](https://github.com/user-attachments/assets/66e5484d-e5f6-4aff-9883-bec24f8c662b)
