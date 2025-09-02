@@ -2,7 +2,7 @@
 - 💬= I'd love a conversation! - 
 - 🟢=Talk to me if you'd like. - 
 - 🌙= W2I / AFK - 
-- ⛔= Strictly DNIUF. I'm most likely struggling with something. -
+- ⛔= Strictly DNIUF. -
 - /////////////////////////////////////////////////////////////////////////////////////////////////////////////////////
 - Feel free to C+H if AFK.
 - Slow replier.
