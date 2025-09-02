@@ -19,7 +19,6 @@
 - /////////////////////////////////////////////////////////////////////////////////////////////////////////////////////
 - DNI IF:
 - you fall into the average dni criteria. [homophobic, racist, zoophile, etc.]
-- you overly ship [for example using the characters real names in ship fanfics, TAGGING THE CREATORS IN SHIP ART] / Actively harass the eddsworld crew. I can not stand anti-fans. [but just to be clear, selfshippers and normal shippers are ok in my book.]
 - INT IF:
 - Honestly just interact with me if u dont fall into the DNI category, I'd love to make some friends.
 
